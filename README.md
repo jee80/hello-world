@@ -2,4 +2,4 @@
 
 hi humans!
 
-I am Intereting all about changes
+I am Interesting all about changes
